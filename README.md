@@ -1,1 +1,0 @@
-# yerimbak.github.io
